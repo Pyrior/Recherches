@@ -1,0 +1,1 @@
+ Les Limbes sont un lieu pour notre esprit, notre conscience, notre image propre, le corps physique n’y a pas sa place.

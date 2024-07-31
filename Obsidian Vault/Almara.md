@@ -1,0 +1,1 @@
+Ville dans laquelle s'est installée le [[Concordat de la Démence]].
